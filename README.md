@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @dardagnian
+- 👀 I’m interested in encrypted phone
